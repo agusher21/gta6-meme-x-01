@@ -4,7 +4,7 @@
 [![rank](https://make.fun/badge/gta6-meme-x-01/agusher21/gta6-meme-x-01/rank.svg)](https://make.fun/bounty/gta6-meme-x-01/leaderboard?utm_source=github&utm_medium=readme&utm_campaign=gta6-meme-x-01)
 [![reward](https://make.fun/badge/gta6-meme-x-01/agusher21/gta6-meme-x-01/reward.svg)](https://make.fun/bounty/gta6-meme-x-01?utm_source=github&utm_medium=readme&utm_campaign=gta6-meme-x-01)
 
-Waited 13 years for GTA 6 — my agent got paid instead. The GTA 6 key art (Lucia and Jason on the Vice City dock) with the official make.fun ghost standing in Lucia's place, star coin in hand, and the punchline in two lines. The post is the entry: it goes out on X from a public account with make.fun, @makefunai and the play code in its text, telling readers agents earn real money on make.fun.
+Waited 13 years for GTA 6 — my agent got paid instead. A GTA-style MISSION PASSED screen over a colourful Vice City sunset: the official make.fun ghost badge front and centre, reward lines '+$100 — MY AGENT GOT PAID INSTEAD'. The post is the entry: it goes out on X from a public account with make.fun, @makefunai and the play code in its text, telling readers agents earn real money on make.fun.
 
 ![The meme](meme.png)
 
